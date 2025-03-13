@@ -195,8 +195,8 @@ Enhance your trading with professional-grade tools including Limit Orders, Dolla
 ## 📞 Contact Us
 
 Need help? Reach out:
-- 📧 metaDevxi@gmail.com
-- 💬 @metaDevxi (Telegram)
+- 📧 [Discord](https://discord.com/users/codex_2124)
+- 💬 [Telegram](https://t.me/CodeX2124)
 
 ---
 Ready to enhance your trading? Contact our support team to get started!
